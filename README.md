@@ -1,1 +1,0 @@
-# Benim-Sanat-ve-Medya-Sayfam
